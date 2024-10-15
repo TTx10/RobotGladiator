@@ -13,7 +13,11 @@
 
 💐Cơ cấu giải thưởng: 
 🥇01 Giải Nhất: 3.000.000 đồng/giải + Giấy khen + Kỷ niệm chương
+
 🥈01 Giải Nhì 2.000.000 đồng/giải + Giấy khen + Kỷ niệm chương
+
 🥉02 Giải Ba: 1.500.000 đồng/giải + Giấy khen + Kỷ niệm chương
+
 🎖️04 Giải Khuyến khích: 800.000 đồng/giải + Giấy khen + Kỷ niệm chương
+
 🎖️01 Giải bình chọn: 500.000 đồng/giải + Kỷ niệm chương
