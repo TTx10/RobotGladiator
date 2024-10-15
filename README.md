@@ -21,6 +21,7 @@
 ➡️ Vòng chung kết: Ngày 10/11/2024.
 
 💐Cơ cấu giải thưởng: 
+
 🥇01 Giải Nhất: 3.000.000 đồng/giải + Giấy khen + Kỷ niệm chương
 
 🥈01 Giải Nhì 2.000.000 đồng/giải + Giấy khen + Kỷ niệm chương
